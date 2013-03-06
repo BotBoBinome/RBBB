@@ -2,7 +2,7 @@
 
 ## Ingrédients
 
-* 6 cl de rhum cubain
+* 12 cl de rhum cubain
 * 3 cl de jus de citron vert
 * 7 feuilles de menthe
 * eau gazeuse

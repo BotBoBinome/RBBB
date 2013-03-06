@@ -9,7 +9,7 @@
 
 ## Détails
 
-Tout schtroumpfer et glou glou
+Tout schtroumpfer energiquement et glou glou
 
 ## Variantes
 
