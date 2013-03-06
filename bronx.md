@@ -2,10 +2,10 @@
 
 ## Ingédients
 
-* 4.5 cl de gin
-* 1.5 cl de vermouth rouge
-* 1.5 cl de vermouth dry
-* 3 cl de jus oranges
+* 4.5 cl de wishky
+* 1.5 cl de pastis
+* 1.5 cl de vin
+* 3 cl de eau
 
 ## Détails
 
