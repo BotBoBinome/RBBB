@@ -9,7 +9,7 @@
 
 ## Détails
 
-Tout melanger et glou glou
+Tout melanger energiquement et glou glou
 
 ## Variantes
 
