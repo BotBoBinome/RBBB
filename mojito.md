@@ -10,4 +10,4 @@
 
 ## Détails
 
-Directement dans le verre
+Directement dans le schtroumpf
