@@ -9,7 +9,7 @@
 
 ## Détails
 
-Tout melanger et glou glou
+Tout schtroumpfer et glou glou
 
 ## Variantes
 
