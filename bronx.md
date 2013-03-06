@@ -10,3 +10,7 @@
 ## Détails
 
 Tout melanger et glou glou
+
+## Variantes
+
+Variantes
